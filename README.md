@@ -1,6 +1,6 @@
 
 - This repo is just a demo; you can't use the bot by just downloading it.
-- click to try it right now !: https://t.me/clickerw3tap_bot
+- click to try it right now !: https://t.me/clickertest_new_bot
 ![Best Complete Clicker Telegram Mini App - Copy Hamster, NotCoin](intro.jpg)
 
 
