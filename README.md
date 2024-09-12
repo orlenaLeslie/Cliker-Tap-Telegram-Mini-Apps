@@ -12,11 +12,14 @@
 - **Quick Launch**: We have ready-to-use clickers. Set up is fast, and you can launch your game in no time.
 
 **Functions:**
-- 🤘 Tap - Click for mine coins
-- 🚀 Boosts - Daily rewards and Boosts
-- 🤝 Referrals - Invite friends and recieve rewards
-- 📝 Tasks - Do tasks and earn points
-- 🛡 Safe - Trustworthy server for a reliable experience.
+What can this bot do?
+- 🤑 Tap to Mine Coins - Get rich quick with a simple tap!
+- 🚀 Daily Boosts - Unlock daily rewards for a turbo-charged experience!
+- 🤝 Referrals - Invite your friends and earn together, rewards for everyone!
+- 📝 Tasks - Complete exciting tasks and rack up those points!
+- 🤑 Exchange - Seamlessly exchange currencies, diversify your earnings!
+- 💰 Ton Wallet - Connect and manage your wealth with ease!
+For order: @michael_0x00lab
 
 **You are getting:**
 
@@ -28,13 +31,13 @@
 
 **Example Clicker**
 
-- This is the best and Complete Telegram clicker game — click to test it out!: https://t.me/clickerw3tap_bot
+- This is the best and Complete Telegram clicker game — click to test it out!: https://t.me/clickertest_new_bot
 
 **You can:**
 - **Quick Setup**: Choose a ready-made clicker.
 - **Custom Design**: Or, get a personalized clicker game.
 
-**Price from $1500 and depends on your request.** More details: https://t.me/RamWeb3Wit Lab
+**Price from $900 and depends on your request.** More details: https://t.me/michael_0x00lab Lab
 
 
 **Web3Wit Lab Advantages:**
